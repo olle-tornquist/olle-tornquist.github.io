@@ -1,5 +1,5 @@
 
-Welcome to my website! I am a PhD Candidate in Economics at Uppsala Univeristy and IFAU, with a special interest in organized labor and decisionmaking in the labor market. \
+Welcome to my website! I am a PhD Candidate in Economics at Uppsala University and IFAU, with a special interest in organized labor and decisionmaking in the labor market. \
 \
 I will be on the 2026/2027 Job Market.
 #### Contact
