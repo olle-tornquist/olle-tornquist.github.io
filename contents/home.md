@@ -4,7 +4,7 @@ Welcome to my website! I am a PhD Candidate in Economics at Uppsala University a
 I will be on the 2026/2027 Job Market.
 #### Contact
 
-Email: olle.tornquist[at]ifau.uu.se
+Email: olle.tornquist[at]ifau.uu.se \
 Phone: +46702707741
 
 #### Education
