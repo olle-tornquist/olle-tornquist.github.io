@@ -5,6 +5,7 @@ I will be on the 2026/2027 Job Market.
 #### Contact
 
 Email: olle.tornquist[at]ifau.uu.se
+Phone: +46702707741
 
 #### Education
 Ph.D., Economics, Uppsala University, 2022-\
